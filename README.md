@@ -1,0 +1,2 @@
+# info
+mud's info
