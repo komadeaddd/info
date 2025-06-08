@@ -1,6 +1,6 @@
 
 <p align="center">
-Greetings. 
+Greetings! 
 <p align="center">
 I usually ask you to call me by these pseudonyms: Mad, Bommi, ded ;
 <p align="center">
