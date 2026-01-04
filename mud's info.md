@@ -2,7 +2,7 @@
 <p align="center">
 Greetings! 
 <p align="center">
-I usually ask you to call me by these pseudonyms: Mad, Bommi, Rina ;
+It'll be nice if you call me by these pseudonyms: Mud, Bommi, Rina ;
 <p align="center">
 You can use pronouns any way you want, I won't mind. ;
 <p align="center">
@@ -19,3 +19,7 @@ Alien Stage ; Given ; Genshin Impact ; Honkai Star Rail ; MILGRAM ; DemOn ; Proj
 Kinnlist :
   <p align="center">
 Till — Alien Stage ; Tartaglia / Fischl / Layla — Genshin Impact  ; Aventurine / Huohuo — Honkai Star Rail ; Mafuyu Sato — Given ; Akito Shinonome — Project Sekai: Colorful Stage ; Kajiyama Fuuta / Mikoto Kayano — MILGRAM ; Demontaniel — DemOn .
+<p align="center">
+DNI: 
+<p align="center">
+(all)–philia; homophobia; selfharm; politics; wirth; rudeness; people less than 16 yo (I don't understand how to communicate with them) ; i don't like lukatill / ivanluka / scaramouche fans. 
