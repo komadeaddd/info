@@ -10,13 +10,13 @@ INFP , 4w3 , 469 ; melancholic ; anxious-avoidant type ; 16.04 ; aromatic.
 <p align="center">
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 <p align="center">
-The main fandoms :
+Main fandoms :
   <p align="center">
 Alien Stage ; Given ; Genshin Impact ; Honkai Star Rail ; MILGRAM ; DemOn ; Project Sekai: Colorful Stage ; Airknight ; Omniscient Reader's Viewpoint ; No.6 .
 <p align="center">
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 <p align="center">
-Kinnlist :
+Kinlist :
   <p align="center">
 Till — Alien Stage ; Tartaglia / Fischl / Layla — Genshin Impact  ; Aventurine / Huohuo — Honkai Star Rail ; Mafuyu Sato — Given ; Akito Shinonome — Project Sekai: Colorful Stage ; Kajiyama Fuuta / Mikoto Kayano — MILGRAM ; Demontaniel — DemOn .
 <p align="center">
